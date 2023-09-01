@@ -1,5 +1,5 @@
 # User Experience Researcher
 
-### Education
+_more to come soon!_
 
-### Experience
+[LinkedIn](https://www.linkedin.com/in/kevinarthur)
